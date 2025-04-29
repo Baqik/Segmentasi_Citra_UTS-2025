@@ -1,0 +1,1 @@
+# Segmentasi_Citra_UTS-2025
